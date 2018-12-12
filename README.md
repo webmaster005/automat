@@ -1,2 +1,2 @@
 # automat
-je to našlapaný web ze školy
+nevim 
